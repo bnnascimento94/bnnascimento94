@@ -36,7 +36,7 @@ Academic Education:
 
 Soft Skills:
 - Proactive
-- Team worker
+- Team Player
 - Good Comunication
 - Self-taught
 
