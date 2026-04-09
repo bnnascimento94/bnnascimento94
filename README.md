@@ -2,8 +2,7 @@
 
 About me:
 
-- I'm 29 years old;
-- 4 years of Android Development;
+- 6 years of Android Development;
 - Love to learn about new things;
 - A soccer fan
 
